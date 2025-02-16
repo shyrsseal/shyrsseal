@@ -8,3 +8,7 @@ I tend to chat in caps alot when I'm happy / comfortable ^^
 usually offtab when I'm not with friends, so sorry if I'm ignoring you 
 
 if i follow you, that means I think you're cool/wanna be friends with!
+
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
+
+usually wearing my eva tsunaka or ivan pony ^^
