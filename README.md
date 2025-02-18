@@ -12,3 +12,5 @@ if i follow you, that means I think you're cool/wanna be friends with!
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
 
 usually wearing my eva tsunaka or ivan pony ^^
+seen here:
+![1000012604](https://github.com/user-attachments/assets/d459a587-2c7d-4dbe-89bf-b6cc258dd516)
